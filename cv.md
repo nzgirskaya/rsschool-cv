@@ -1,3 +1,1 @@
-Zgirskaja Nadia
-Contacts:
-   
+https://nzgirskaya.github.io/rsschool-cv/
